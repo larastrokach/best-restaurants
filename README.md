@@ -21,6 +21,7 @@ Prague, known for its rich history and stunning architecture, also boasts a vibr
    Embracing the farm-to-table concept, Eska highlights contemporary Czech cuisine with an emphasis on locally sourced ingredients. The trendy industrial design and open kitchen concept add to the unique dining experience.
 
 3. **Strahov Monastery Brewery**
+   
    If you’re looking for Czech beer and traditional Czech meals, you can’t miss Strahov Monastery’s brewery.
 
 4. **Terasa U Prince**  
